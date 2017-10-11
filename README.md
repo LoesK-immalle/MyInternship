@@ -14,3 +14,4 @@ Vandaag was niet zo spectaculair. 's Middags maakte Thierry, de baas, eitjes met
 ## 2017-10-05
 Veel op weg geweest vandaag. Na een vrij normale voormiddag (zo normaal als het kan met deze mannen haha) zijn we eerst naar De Kleine Vos gegaan om een paar printers en het scherm van een zuster te checken. De volgende halte was de luchthaven van Deurne. Spijtig dat ik niet mee op het dak mocht om een antenne te herstellen. Ik heb een uur mogen wachten op een bankje bij de car rentals. Het was al wat later toen we terug naar huis gingen, maar toch ben ik naar huis gegaan om een bedank-taart te bakken voor mijn collega's.
 ## 2017-10-06
+Een beetje saai vandaag. Na een lift van Peter naar Kontich mocht ik met mijn stagebegeleider mee op sitebezoek. Vriendelijke mensen met verassend weinig problemen. Tijdens de middag was het feest. Iedereen kreeg een stukje taart. In de namiddag was er niet meer zo veel te doen of te zien. 
